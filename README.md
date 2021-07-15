@@ -1,4 +1,4 @@
-# MichaelCollinstribute
+# Michael-Collins-tribute
 
 ## Creation Date
 
